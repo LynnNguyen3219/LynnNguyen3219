@@ -1,3 +1,4 @@
-- 16 years old, she/her, enfp 4w3
+- 16 years old, she/her
 - student at spokane valley tech
 - i love planes and cybersecurity!!
+- cool stuff in progress...
