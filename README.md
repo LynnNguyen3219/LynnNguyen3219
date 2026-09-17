@@ -2,8 +2,8 @@
 
 **some facts about me:**
 - 16 years old, she/her
-- student at spokane valley tech
-- i love planes and cybersecurity!!
+- cybersecurity student at svt
+- i love planes and jrpgs!!!
 - cool stuff in progress...
 
 **contact me:**
