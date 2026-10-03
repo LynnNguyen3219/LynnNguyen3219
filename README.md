@@ -3,7 +3,6 @@
 **some facts about me:**
 - 16 years old, she/her
 - cyberops student at svt
-- i love airplanes & old tech!!!
 - i do things for hack club sometimes
 - cool stuff in progress...
 
