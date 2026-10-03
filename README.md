@@ -3,7 +3,7 @@
 **some facts about me:**
 - 16 years old, she/her
 - cyberops student at svt
-- i do things for hack club sometimes
+- i make things for hack club
 - cool stuff in progress...
 
 **contact me:**
